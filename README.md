@@ -1,1 +1,0 @@
-# ayaka-chan.github.io
